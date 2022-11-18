@@ -1,6 +1,6 @@
 [
 # **DIET GAME Privacy Policy**
-](https://www.ebetsaleel.com/blog/privacy-policy)
+]
 
 Thank you for playing our games! This Privacy Policy describes:
 
